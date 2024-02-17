@@ -11,6 +11,7 @@ Some facts about me:
 - I enjoy many types of fiber arts including knitting and crochet.
 - I love gaming both online and in person with my husband. 
 </p><p align='left'> You can view my resume <a href='https://drive.google.com/file/d/1QZkt7JASshxlT_Pbzmbewt66qZTk0o86/view?usp=sharing ' target=_blank><u>here</u>.</a></p>
+
 ## Some of my Github Stats
 <p align=left> <img src=https://komarev.com/ghpvc/?username=Krista-Sutton alt=Krista-Sutton /> </p>
 
