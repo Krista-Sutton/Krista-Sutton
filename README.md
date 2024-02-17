@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **Kristalynnsutton@gmail.com**
 
-- 📄 Read my resume here [https://drive.google.com/file/d/1n1nP_-PxFx7r2dmM7wYgisdwgPJK-89b/view?usp=sharing](https://drive.google.com/file/d/1n1nP_-PxFx7r2dmM7wYgisdwgPJK-89b/view?usp=sharing)
+- 📄 Read my resume here **https://drive.google.com/file/d/1QZkt7JASshxlT_Pbzmbewt66qZTk0o86/view?usp=sharing**
 
 - ⚡ Fun fact **I love fiber arts, mostly knitting and crochet**
 
